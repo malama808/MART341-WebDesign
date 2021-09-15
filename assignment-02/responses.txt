@@ -1,1 +1,7 @@
-
+The world wide web is a system that computers would interact and communcate and the internet is physical connections or pathways between computrs, satellites and other devices or appliances. 
+The internet is a worldwide computer network that transmits/communicate a variety of data and media across devices
+The wed directories are "folders" that organizes different files into groups
+VCS will help individually or as a team to manage changes or the history of the website produced. 
+Took the screenshot
+The Art of Hula
+DONE

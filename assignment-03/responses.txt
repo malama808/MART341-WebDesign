@@ -1,0 +1,8 @@
+Question 1:
+The 3 websites I like to visit is Mele.com, Youtube.com and Facebook.com
+Question 2:
+The IP address is the location of the computer and the DNS is the Domain name specifically that host the name for the IP address.
+Question 3:
+A Cookie is described as a packet of data that is placed in a computer that helps to transfer data efficiently and quicker.
+Questions 4
+The 3 essential parts of a URL are, (Scheme/domain name/ path)

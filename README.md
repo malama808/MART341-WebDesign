@@ -1,3 +1,0 @@
-Kaʻaumoana Ahina 
-
-Aloha mai kākou. This class is a completely new thing that Iʻm learning and I write extensive notes for all the readings. I was able to get through the homework tonight. The challenging part for me is learning the sequence for doing the homework and follow all the different prompts. Also, I have to organize and manage the information in Moodle and GitHub and make sure that Iʻm checking all platforms. The successes is completing this assignment. I felt confused but Iʻll get it eventually. I plan to link up with classmates to help me understand better. I did catch on as I started to do the homework. 
